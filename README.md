@@ -10,7 +10,7 @@
 
 # ⚡ Gustavo Azevedo
 
-**`Desenvolvedor Front-end`**
+**`DEVELOPER`**
 
 
 ### 🤖 Linguagens e Tecnologias
